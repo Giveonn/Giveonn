@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything really
 - 📫 How to reach me: gideon107799@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: i simulteanously pursuing a QA engineering career
+- ⚡ Fun fact: i am simulteanously pursuing a QA engineering career
 --> follow me on X @AdeGiveon
 can also find me on linked in @Gideon Adelaja
